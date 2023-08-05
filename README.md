@@ -1,1 +1,0 @@
-# snpmyn.github.io
