@@ -1,1 +1,1 @@
-# snpmyn.github.io
+# 主页
